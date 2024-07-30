@@ -6,13 +6,14 @@
 NOTE: TEKE 1KG OF BASMATHI RICE WASH IT WELL AND SOAK IT IN WATER FOR A WHILE .
 
 ## step 2:
-         add 1kg fresh cleaned uncooked mutton.
-         add 3 more chopped onions .
+         
+         
          add 200g of tomato.
          add 200g of curd.
          add 3-spoons of red chilli powder.
          add appropriate amount of salt according to the taste.
          mix well for 5 mins.
+         add 1kg fresh cleaned uncooked mutton.
 
  ## step 3:
             add garam masala 1-spoon.
